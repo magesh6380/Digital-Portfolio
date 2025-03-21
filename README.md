@@ -1,1 +1,1 @@
-https://magesh6380.github.io/Portfolio-/
+https://magesh6380.github.io/Digital-Portfolio/
